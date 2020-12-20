@@ -1,1 +1,1 @@
-# jin.github.io
+# seokjinnie.github.io
